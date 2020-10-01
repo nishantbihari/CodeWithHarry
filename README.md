@@ -1,6 +1,5 @@
-# CodeWithHarry - A Legend Who Transformed The Life Of Many Students
-Harry Bhai is a Coder who has helped many coders to learn many languages
-A gift to codewithharry. Hope you love it
+# CodeWithHarry - Apna Best programming Adda.
+Coed With Harrry is one of best site to learn any programming language.
+His teaching style is not only the best but unique so that any one can understand.
 
-
-Code With Harry Is a Best Coder In India.
+He is the one who is talanted programmer and have better knowledge than other programmer in india i have know.
